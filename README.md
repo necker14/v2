@@ -12,6 +12,5 @@
 ---
 
 ![Data](https://s1.locimg.com/2022/12/15/248896cc7a295.png)
-![TG](https://s1.locimg.com/2022/12/15/0f228fef39160.png)
 
 ## 后续将陆续公开月流水1W+的机场站点
